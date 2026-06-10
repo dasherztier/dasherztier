@@ -34,4 +34,4 @@ my fandom list is huge, so here are my current interests:
 - yoshiki (tshd)
 - will graham (hannibal)
 
-### you can check my drawings in morart repository!
+i'm dropping some of my drawings in the morart repository occasionally
