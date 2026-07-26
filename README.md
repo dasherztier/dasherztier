@@ -2,7 +2,8 @@
 
 name's mor, he/him, neurodivergent; i'm autistic and i have adhd and npd. i love horror
 
-i'm an artist, though i'm not posting right now as i am on hiatus. i'm also writing my own graphic novel, but the whole thing is still in super raw state and i'm currently at worldbuilding and lore writing
+i'm an artist, though i'm not posting right now as i am on hiatus. but i'm dropping some of my drawings in the twistedswrd repository occasionally
+i'm also writing my own horror story, but the whole thing is still in super raw state and i'm currently at worldbuilding and lore writing
 
 english isn't my first language so please bear with me if i say some bullshit, especially since i type fast
 
@@ -23,7 +24,8 @@ my fandom list is huge, so here are my current interests:
 - deltarune > undertale
 - identity v
 - honkai star rail
-- the summer hikaru died (at ep 9 rn, no spoilers pls!!!)
+- the summer hikaru died (no spoilers pls!!!)
+- my own ocs😝😝😝 (someone give me inspiration pls.)
 
 **kin list**:
 - kris (deltarune)
@@ -32,6 +34,3 @@ my fandom list is huge, so here are my current interests:
 - herta (hsr)
 - dess (deltarune)
 - yoshiki (tshd)
-- will graham (hannibal)
-
-i'm dropping some of my drawings in the morart repository occasionally
