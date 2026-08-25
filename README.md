@@ -17,8 +17,6 @@ name's mor, he/him, neurodivergent - i have audhd and npd. i love horror
 
 i'm an artist, though i'm not posting right now as i am on hiatus. but i'm dropping some of my drawings in the twistedswrd repository occasionally
 
-i'm also writing my own horror thingy, but the whole thing is still in super raw state and i'm currently at worldbuilding and lore writing...
-
 english isn't my first language so please bear with me if i say some bullshit, especially since i type fast
 
 ㅤ
@@ -43,7 +41,7 @@ english isn't my first language so please bear with me if i say some bullshit, e
   
 my fandom list is huge, so here are my current fixations:
 
-<ins>***ㅤinterests:***</ins>ㅤ **slipknot**,⠀**deltarune** > undertale,⠀**identity v**,⠀honkai star rail;⠀vocaloid;⠀my own OCs
+<ins>***ㅤinterests:***</ins>ㅤ **slipknot**,⠀**deltarune** > undertale,⠀**identity v**,⠀honkai star rail;⠀vocaloid;⠀my OCs
 
 <ins>***ㅤfaves:***</ins>ㅤ **jim root** (slipknot);⠀**kris**, **dess**, **roaring knight** (deltarune);⠀**tracy reznik *(mechanic)***, **emil *(patient/"herztier")***, **galatea *(sculptor)***, **melly plinius *("queen bee")*** (identity v);⠀**sunny**, **aubrey** (omori)
  
