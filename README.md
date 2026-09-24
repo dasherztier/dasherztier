@@ -5,7 +5,7 @@
 
 <div align="center">
 
-[atabook](https://twistedswrd.atabook.org/) ㅤ [prns.page](https://en.pronouns.page/@herztier)
+[carrd](https://twistedswrd.carrd.co/) ㅤ [atabook](https://twistedswrd.atabook.org/) ㅤ [prns.page](https://en.pronouns.page/@herztier)
 
 </div>
 
@@ -19,10 +19,12 @@ i'm an artist, though i'm not posting right now as i am on hiatus. but i'm dropp
 
 english isn't my first language so please bear with me if i say some bullshit, especially since i type fast
 
+**please read carrd for broader byi & dni**
 ㅤ
 <p align="center"> ────────────────────────────────
 
 ## ㅤㅤㅤ<ins>ㅤBYI</ins> 
+
 
 - most of the time i'm semi-afk/offtab, so please w2i (i might reply late though) (no i will not help you with your party island)
   - cuddling is for friends only!
