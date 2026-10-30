@@ -13,7 +13,7 @@
 
 name's mor, he/him, neurodivergent - i have audhd and npd. i love horror
 
-i'm an artist, though i'm not posting right now as i am on hiatus. but i'm dropping some of my drawings in the twistedswrd repository occasionally
+i'm an artist, though i'm not posting right now as i am on hiatus. but i'm dropping some of my drawings in the [morgenrot repository](https://github.com/dasherztier/morgenrot) occasionally
 
 english isn't my first language so please bear with me if i say some bullshit, especially since i type fast
 
